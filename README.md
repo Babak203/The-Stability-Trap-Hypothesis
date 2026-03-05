@@ -1,1 +1,0 @@
-# The-Stability-Trap-Hypothesis
